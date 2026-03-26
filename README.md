@@ -61,6 +61,4 @@
 
 * 📧 Email: [chiragpatel0088@gmail.com](mailto:chiragpatel0088@gmail.com)
 
----
 
-⭐ *Always learning and building real-world backend systems*
