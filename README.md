@@ -59,6 +59,6 @@
 
 ## 📫 Reach Me
 
-* 📧 Email: [chiragpatel0088@gmail.com](mailto:chiragpatel0088@gmail.com)
+* 📧 Email: [chiragpatel862003@gmail.com](mailto:chiragpatel0088@gmail.com)
 
 
